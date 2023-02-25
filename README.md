@@ -1,0 +1,2 @@
+# Calculatorda_Amaliyot
+salom
